@@ -1,4 +1,6 @@
 # youre gay
 
 gay 
-gay i hate loggers
+gay pussy
+go suck dick
+nice meme you stole?
